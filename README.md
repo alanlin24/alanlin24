@@ -9,7 +9,7 @@ I like to try cool, new, and funny stuff. <br>
 <br>
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ... how to randomly display a meme gif at my profile.
+- 🔭 I’m currently working on ... how to randomly display a meme gif at my profile and a subscription platform for local farmers.
 - 🌱 I’m currently learning ...swift w/ cs193p
 - 🤔 I’m looking for help with ... tennis
 - 💬 Ask me about ...everything is ok as long as is not too weird lol
