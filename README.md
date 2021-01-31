@@ -10,6 +10,6 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ... tennis
 - 💬 Ask me about ...everything is ok as long as is not too weird lol
-- 📫 How to reach me: ... alanlin24@ntu.im or [instagram](https://www.instagram.com/alanlin24/)
+- 📫 How to reach me: ... by [drop me a mail](alanlin24@ntu.im) or [dm me on instagram](https://www.instagram.com/alanlin24/)
 - 😄 Pronouns: ...He
 - ⚡ Fun fact: ... I grew up in Cali but came back to TW before primary school
